@@ -1,6 +1,6 @@
 ## hello!!!! 
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=vampyrezcry&color=red)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=vampyrezcry&color=grey)
 
 
-![](https://media1.tenor.com/m/FNAEVlfBc-wAAAAC/idrila-argenti.gif)
+![](https://media.tenor.com/1MjOzYWllKUAAAAM/alucard-castlevania.gif))
