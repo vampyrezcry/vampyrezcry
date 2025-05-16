@@ -1,5 +1,5 @@
 ## hello!!!! 
-![](https://komarev.com/ghpvc/?vampyrezcry=your-github-username)
+![](https://komarev.com/ghpvc/?vampyrezcry=https://github.com/vampyrezcry)
 <!--
 **vampyrezcry/vampyrezcry** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
