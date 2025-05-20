@@ -1,8 +1,8 @@
-### HELLO!!!!!!
+# <center> HELLO!!!!!! HIII!!!!!!!! </center> ### 
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=vampyrezcry&color=grey)
+![epic people](https://komarev.com/ghpvc/?username=vampyrezcry&color=grey)
 
-![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=kakitogej&count=1)
+![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=aprk7av7vx608vb8xnbyxnt4c)
 
 ![](https://media.tenor.com/OEzz8RSUqRgAAAAm/blinkie-blinkies.webp)
 
