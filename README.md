@@ -1,5 +1,5 @@
 # <center> HELLO!!!!!! HIII!!!!!!!! </center> ### 
-sign my ata if ur swag -> [meow](https://vampyrezcry.atabook.org)
+sign my ata pls!!!! -> [meow](https://vampyrezcry.atabook.org)
 
 ![epic people](https://komarev.com/ghpvc/?username=vampyrezcry&color=grey)
 
