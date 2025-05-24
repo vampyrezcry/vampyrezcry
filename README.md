@@ -25,11 +25,10 @@
 
 <div align="center">　
 
-
 ![](https://komarev.com/ghpvc/?username=vampyrezcry&color=grey)
 
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=aprk7av7vx608vb8xnbyxnt4c)
 
 ![](https://media.tenor.com/OEzz8RSUqRgAAAAm/blinkie-blinkies.webp)
 
-
+![](https://64.media.tumblr.com/171b910905e72f81f815be5ea4eb3375/5d696a7f4d95b9d3-2a/s100x200/23265f086277fd7906236e14d0d6091547918f64.gifv) ![](https://64.media.tumblr.com/4f56eb3d968bf2df0672560595178131/5d696a7f4d95b9d3-01/s100x200/a997aedcb03a126c629c5ed2e3a533d95274bd9f.gifv)
