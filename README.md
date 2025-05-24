@@ -23,7 +23,7 @@
 
 ![image](https://64.media.tumblr.com/1e629852ff0e2aea8272c4af9e1e58df/510ad4e3bd20fa43-17/s400x600/509a5b2ee51c7dbc578fa42fb4f174380a236874.pnj)
 
-<div align="center">　
+![](https://64.media.tumblr.com/dd75959eabe7c20ee71ffcbb5345eaac/f6e0c2fab9433338-68/s250x400/1ad0e1728d9c16f3d4c3853c1f6ea5fe80126383.pnj)
 
 ![](https://komarev.com/ghpvc/?username=vampyrezcry&color=grey)
 
