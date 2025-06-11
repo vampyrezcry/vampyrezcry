@@ -40,4 +40,7 @@ safe server , crowns are appreciated ![](https://64.media.tumblr.com/b3d8f047a93
 
 ![](https://cdn.discordapp.com/attachments/785202344202862592/1378842183876218950/picmix.com_12728117.gif?ex=683e125a&is=683cc0da&hm=284a7b35e7854d283df979fba84a62d968af5ad2fe96faf13e7c57bf5e446b30&)
 
+16:15[' ⭐ || ✧ ─ Aᴇᴛʜᴇʀ.. *] I hope dain is afk because....
+16:15[' ⭐ || ✧ ─ Aᴇᴛʜᴇʀ.. *] Dainsleif 🥵🥵🥵🤤🤤🥵😍🥵😳🥵🥵🥵🥵🥵🥵😍🥵😍 DAINDADDY MENTJONED
+
 ![](https://64.media.tumblr.com/3171f0094771bb00edc4e9c628342bd7/ca9a377942aa49e9-39/s500x750/bf0acc8fb5536c22fcf386414595dc8083c432ee.pnj)
