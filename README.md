@@ -47,4 +47,6 @@
 
 16:15[' ⭐ || ✧ ─ Aᴇᴛʜᴇʀ.. *] Dainsleif 🥵🥵🥵🤤🤤🥵😍🥵😳🥵🥵🥵🥵🥵🥵😍🥵😍 DAINDADDY MENTJONED
 
+09:54[' ⭐ || ✧ ─ Aᴇᴛʜᴇʀ.. *] Il never get attracted by dains ever again.. I say as I hid my stack of pictures of dainsleif..
+
 ![](https://64.media.tumblr.com/3171f0094771bb00edc4e9c628342bd7/ca9a377942aa49e9-39/s500x750/bf0acc8fb5536c22fcf386414595dc8083c432ee.pnj)
