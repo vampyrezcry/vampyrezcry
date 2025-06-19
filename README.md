@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![](https://img1.picmix.com/output/pic/normal/4/3/5/8/12218534_854e6.gif)
+![](https://media.discordapp.net/attachments/785202344202862592/1385338197550043258/IMG_5900.png?ex=6855b43c&is=685462bc&hm=b00abd50ebd2b295824a15000cca91e0d3c0c8481d4649bc123cf3b49adaeb1e&=&format=webp&quality=lossless&width=1327&height=746)
 
 ![image](https://64.media.tumblr.com/3171f0094771bb00edc4e9c628342bd7/ca9a377942aa49e9-39/s500x750/bf0acc8fb5536c22fcf386414595dc8083c432ee.pnj)
 
