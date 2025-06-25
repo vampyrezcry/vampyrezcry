@@ -29,7 +29,7 @@
   ![](https://64.media.tumblr.com/3853b98a8ffc3d2707d6f49de11ea6c7/2b6109a88798b692-50/s75x75_c1/2649f64ddc16ac3eb4d964bb8ebcc440a39e0665.gifv)
 <div align="center">　
 
- [RENTRY](https://rentry.co/lesbianvampyrezfromouterspace)‎ ‎  ‎  ‎  ‎ [ATA](https://vampyrezcry.atabook.org) ‎  ‎  ‎  ‎ [STRAW](https://vampyrezcry.straw.page)
+ [RENTRY](https://rentry.co/ilovedainsleif)‎ ‎  ‎  ‎  ‎ [ATA](https://vampyrezcry.atabook.org) ‎  ‎  ‎  ‎ [STRAW](https://vampyrezcry.straw.page)
  ‎ 
   ‎ 
   
