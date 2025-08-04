@@ -2,21 +2,14 @@
 
 <div align="center">
 
-![](https://64.media.tumblr.com/3cda79cd859b82e15b87976cb654ccf3/0d4d9b03f3aa6a0d-b3/s75x75_c1/0b77428dd222fba74982e0392cdca9dc8abf2706.gifv)  ![](https://komarev.com/ghpvc/?username=vampyrezcry&color=55649f&label=the+dream+yet+to+be+dreamed)  ![](https://64.media.tumblr.com/34f387631d66848d0c68146c498949d0/0d4d9b03f3aa6a0d-aa/s75x75_c1/ef456a5a8cf6e04b57693934f4f7d807a3aff0e1.gifv)
+![](https://pixels.crd.co/assets/images/gallery06/74a3569b.gif?v=29416114)  ![](https://komarev.com/ghpvc/?username=vampyrezcry&color=55649f&label=the+dream+yet+to+be+dreamed) ![](https://pixels.crd.co/assets/images/gallery06/d0003fef.gif?v=29416114) 
 
-![](https://files.catbox.moe/akrho8.png)
+![](https://64.media.tumblr.com/a85f50ff9a62527135b3bc3396d0572e/c6281a24c987ceea-ec/s400x600/dd5500f2efc3785ebeb7d56603f1db2930cf73e5.pnj)
 
- dividers made by @infectedrpd on tumblr‎
+![](https://files.catbox.moe/yiqfaf.png)‎
  
-![image](https://64.media.tumblr.com/9eed49c702614fdfc1be184ea52a719a/107110644701e85a-e6/s400x600/637184f5f08285677a7d2093a92085bd485c6e8e.pnj)
-
+![](https://64.media.tumblr.com/a85f50ff9a62527135b3bc3396d0572e/c6281a24c987ceea-ec/s400x600/dd5500f2efc3785ebeb7d56603f1db2930cf73e5.pnj)
 
  [RENTRY](https://rentry.co/ilovedainsleif)‎ ‎  ‎  ‎  ‎ [ATA](https://vampyrezcry.atabook.org) ‎  ‎  ‎  ‎ [STRAW](https://vampyrezcry.straw.page)
  ‎ 
-  ‎ 
 
- ‎ 
-  ‎ ![](https://files.catbox.moe/j3nvw2.png)
-![](https://64.media.tumblr.com/44e507692cb8d8b19cf2e169e438882e/6a013847a16bf59c-d3/s100x200/fbae757b51fa36f6845e5e85a9ad74305b3e617a.pnj)
-
-![](https://files.catbox.moe/tx7xy6.png)
