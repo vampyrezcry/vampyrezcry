@@ -6,7 +6,7 @@
 
 ![](https://64.media.tumblr.com/a85f50ff9a62527135b3bc3396d0572e/c6281a24c987ceea-ec/s400x600/dd5500f2efc3785ebeb7d56603f1db2930cf73e5.pnj)
 
-![](https://files.catbox.moe/yiqfaf.png)‎
+![](https://files.catbox.moe/pe5leg.png)‎
  
 ![](https://64.media.tumblr.com/a85f50ff9a62527135b3bc3396d0572e/c6281a24c987ceea-ec/s400x600/dd5500f2efc3785ebeb7d56603f1db2930cf73e5.pnj)
 
