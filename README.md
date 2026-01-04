@@ -8,7 +8,8 @@
  [RENTRY](https://rentry.co/ilovedainsleif)‎ ‎  ‎  ‎  ‎ [ATA](https://vampyrezcry.atabook.org) ‎  ‎  ‎  ‎ [STRAW](https://vampyrezcry.straw.page)
  
 
-![](https://files.catbox.moe/g845os.png)‎
+![](https://files.catbox.moe/g845os.png)
+![](https://files.catbox.moe/gy91xv.png)‎
  
  ‎ 
 
