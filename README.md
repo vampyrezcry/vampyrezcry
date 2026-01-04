@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=vampyrezcry&color=561715&label=sillies)
+![](https://komarev.com/ghpvc/?username=vampyrezcry&color=000000&label=sillies)
 
 
  [RENTRY](https://rentry.co/ilovedainsleif)‎ ‎  ‎  ‎  ‎ [ATA](https://vampyrezcry.atabook.org) ‎  ‎  ‎  ‎ [STRAW](https://vampyrezcry.straw.page)
