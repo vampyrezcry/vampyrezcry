@@ -11,7 +11,6 @@
  
  ![](https://64.media.tumblr.com/b7cc6699977225204d1bca1cfe6cd45e/f70fbd249bbecac0-16/s400x600/bb1e3162d2cb4fc93ba99b616ea4874e4beae1df.gifv)
  
- ![](https://64.media.tumblr.com/bc634901076ab6e627e730d5fb648a9f/c1975b938af6d6c1-a7/s100x200/96c76aeb5516602ce102b2a03095994af4e2d13a.pnj)
 ‎
  
  ‎ 
